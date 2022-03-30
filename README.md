@@ -1,1 +1,2 @@
-# novasgreattt.github.io
+minecraft link here:
+novasgreattt.github.io/minecraft-classic
